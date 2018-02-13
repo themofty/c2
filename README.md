@@ -13,7 +13,7 @@ khaled hassan 37-2956
 
 daniel malak 37-2220
 
-ahmad mofty amr 37-10784).
+ahmad mofty amr prince 37-10784).
 
 d) About (momen amgad the ranking
 
