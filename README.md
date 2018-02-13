@@ -3,7 +3,9 @@
 b) Getting Started (the group part of getting started in github sprint0).
 
 c) Authors :
-omar not amazing khairy 37-3439
+
+omar the amazing khairy 37-3439
+
 
 momen amgad 37-6745
 
