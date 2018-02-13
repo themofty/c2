@@ -25,6 +25,8 @@ ahmad mofty the tennis player.
 the purpose of the repo is to learn how to solve merge conflicts );
 
 e) Design:
+
+press edit to view our creative design :D 
 -------------------------                   ------------       -------------------
 																                  -                    -
 -                                                 -                    -
